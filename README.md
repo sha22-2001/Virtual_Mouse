@@ -8,4 +8,5 @@ I use my index finger and the thumb for the clicking purpose 🤏
 
 Here is 😃my result📈
 ![image](https://user-images.githubusercontent.com/95826757/192119526-25904a20-d94e-4966-b1f9-2747217052c1.png)
+![image](https://user-images.githubusercontent.com/95826757/192119767-05fca621-4f16-4eb1-a1ea-e5c2e6e0cbce.png)
 
